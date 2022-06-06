@@ -2,4 +2,4 @@
 
 
 ### Usage instruction:
-[Click Here](http://yielding-meeting.surge.sh)
+[Click Here](https://mytoolz.cf/IPTV-STREAM/)
