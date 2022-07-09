@@ -1,6 +1,6 @@
 ## Watch IPTV Online
 
-#### Usage Instruction: [Click Here](http://mytoolz.cf/IPTV-STREAM/)
+#### Usage Instruction: [Click Here](https://oshekharo.github.io/IPTV-STREAM/)
 
 ## 🤗 Meet Me :
 
